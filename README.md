@@ -7,6 +7,6 @@ Hi there 👋
 
 💞️ I’m looking to collaborate with software companies.
 
-📫 How to reach me https://www.upwork.com/freelancers/~0126cb582947d7a5f4?mp_source=share
+📫 How to reach me https://www.upwork.com/freelancers/~0122c47a8c851806e6
 
 ⚡ Fun fact
