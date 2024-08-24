@@ -1,5 +1,6 @@
 Hi there 👋
-👋 Hi, I’m Hassan Younus
+
+👋 I’m Hassan Younus
 
 👀 I’m interested in Software development and technologies.
 
